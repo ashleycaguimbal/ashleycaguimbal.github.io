@@ -17,7 +17,17 @@
 
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/album/4hDok0OAJd57SGIT8xuWJH?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
-&nbsp; &nbsp; &nbsp; &nbsp;
+### Fearless (Taylor's Version) is a country music album that features guitars, banjo, violin, and strings. Swift's adolescent observations and feelings on love and heartbreak are depicted in the lyrics. Swift and Christopher Rowe produced all save the unreleased tracks to match the original recordings: they have identical compositions but with more defined and controlled instrumentation and voices. Swift collaborated with Jack Antonoff and Aaron Dessner to create the vault tracks, which have an indie/electronic backdrop provided by synths and drum programming. Maren Morris and Keith Urban provide guest vocals on two vault tracks.
+
+Taylor Swift
+
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/album/5eyZZoQEFQWRHkV2xgAeBw?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
+## Folklore
+
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/album/2fenSS68JI1h4Fo296JfGr?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
+###The fictions inspired Swift to venture beyond her usual autobiographical style of songwriting, and experiment with different narrative standpoints. In isolation during the lockdown, she let her imagination "run wild", ensuing in a set of imageries and visuals that consequently became Folklore.
 
 ## Speak Now
 

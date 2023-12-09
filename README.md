@@ -7,7 +7,13 @@
 ## Taylor Swift
 
 ![](https://cdn.mos.cms.futurecdn.net/tJvsuRRaC5k97Au5xsPzNk.jpg)
-### Taylor Alison Swift (born December 13, 1989) is an American singer-songwriter. Recognized for her songwriting, musical versatility, artistic reinventions, and influence on the music industry.
+
+Taylor Swift is an American pop and country music singer-songwriter.
+
+Taylor Alison Swift was born in West Reading, Pennsylvania on December 13, 1989. She is named after the musician James Taylor. Her father, Scott Kingsley Swift, is a former Merrill Lynch stockbroker, and her mother, Andrea Gardner Swift (née Finlay), is a former housewife and mutual fund marketing professional. Taylor is of Scottish, German, and Italian origin and has a younger brother, actor Austin Swift. Marjorie Finlay, their maternal grandmother, was an opera singer.
+
+Swift is renowned as a "music chameleon" for dabbling in many music genres and reinventing herself artistically. Until 2012, when she released her fourth studio album, Red, she identified as a country musician. Her CDs were promoted to country radio, although music critics highlighted a variety of pop and rock sounds. After 2010, they noticed that Swift's melodies are rooted in pop music, with country music elements limited to instruments like banjo, mandolin, and fiddle, as well as her slight twang; some speculated that her country music identity was an indicator of her narrative songwriting rather than musical style. Although the Nashville music business welcomed Swift's reputation as a country musician, detractors accused her of ignoring her roots in pursuit of success.
+
 
 &nbsp; &nbsp; &nbsp; &nbsp;
 
